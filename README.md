@@ -7,7 +7,7 @@
 - 📚 Currently completing a Post Graduate Program in Data Science from California Institute of Technology, expanding expertise in machine learning, data visualization, and predictive analytics.
 - 📫 How to reach me-
      Email: sumareddyg.01@gmail.com
-     LinkedIn: [Your LinkedIn Profile Link]
+     Contact: +91 8310229271
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I’m a huge fan of data storytelling and enjoy exploring how data can be visualized to reveal hidden insights. Outside of work, I love hiking and experimenting with new recipes in the kitchen!
   
